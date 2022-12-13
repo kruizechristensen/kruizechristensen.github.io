@@ -1,1 +1,1 @@
-# kruizechristensen.github.io
+# Tech-Wizz.github.io
